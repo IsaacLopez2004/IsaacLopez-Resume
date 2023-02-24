@@ -1,2 +1,0 @@
-# IsaacLopez-Resume
-My resume
